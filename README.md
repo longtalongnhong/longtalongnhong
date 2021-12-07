@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Long.
+- 👋 Lét gâu brrrrrrrr brrrrrrrrrr .............
 - 👀
 - 🌱
 - 💞️
